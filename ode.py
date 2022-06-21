@@ -1,1 +1,0 @@
-wherever you go, wherever you be, do not say yes when you need to say no 
